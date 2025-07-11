@@ -1,4 +1,8 @@
-# 💫 About Me:
+# 💫 Hi 👋, I'm Ankush tyagi
+**A passionate Software Engineer and content creator**
+
+Email Me 👉 ✉️ **ankushtyagi122333@gmail.com** For Collaboration/Project or Anything Else. 😊😊
+
 🔭 I’m currently finding job <br>👯 I’m looking to collaborate on your project<br>🌱 I’m currently learning advanced UI/UX design<br>⚡i have a psychologyfactz_ page on instagram
 
 ## 🌐 Socials:
